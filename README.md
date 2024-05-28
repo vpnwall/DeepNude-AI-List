@@ -1,6 +1,6 @@
 # DeepNude AI List
 * [NSFW AI Tools List](https://nsfw.tools/collections/all)
-* * [Undress.vip](https://undress.vip/)
+* [Undress.vip](https://undress.vip/)
 * [Dreampaint.net](https://dreampaint.net)
 * [Nudify.me](https://nudify.me/)
 * [NoDress.io](https://nodress.io)
