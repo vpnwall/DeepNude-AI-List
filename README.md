@@ -1,5 +1,5 @@
 # DeepNude AI List
-* <b>[N8ked](https://www.n8ked.app/)</b>
+* <b>[N8ked (recommended)](https://www.n8ked.app/)</b>
 * [NSFW AI Tools List](https://nsfw.tools/collections/all)
 * [AI NSFW Tools](https://www.ainsfwtools.com/)
 * [Undress.vip](https://undress.vip/)
