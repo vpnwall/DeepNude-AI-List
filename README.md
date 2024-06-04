@@ -1,5 +1,6 @@
 # DeepNude AI List
-* <b>[N8ked (recommended)](https://www.n8ked.app/)</b>
+* <b>[Deep-Nude.AI (best service)](https://www.deep-nude.ai/)</b>
+* [N8ked](https://www.n8ked.app/)
 * [NSFW AI Tools List](https://nsfw.tools/collections/all)
 * [AI NSFW Tools](https://www.ainsfwtools.com/)
 * [Undress.vip](https://undress.vip/)
@@ -20,7 +21,6 @@
 * [DeepNude.CA](https://deepnude.ca/)
 * [Nudify.Online](https://www.nudify.online/)
 * [Promptchan](https://promptchan.ai/)
-* [Deep-Nude.AI](https://www.deep-nude.ai/)
 * [PornJoy.AI](https://pornjoy.ai/)
 * [PornX.AI](https://pornx.ai/)
 * [sexy.ai](https://sexy.ai/)
