@@ -1,5 +1,6 @@
 # DeepNude AI List
 * <b>[Deep-Nude.AI (best service)](https://www.deep-nude.ai/)</b>
+* <b>[Deep-Fake.AI (recommended)](https://www.deep-fake.ai/)</b>
 * [N8ked](https://www.n8ked.app/)
 * [NSFW AI Tools List](https://nsfw.tools/collections/all)
 * [AI NSFW Tools](https://www.ainsfwtools.com/)
