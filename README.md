@@ -3,6 +3,7 @@
 * [Deep-Nude.AI](https://www.deep-nude.ai/)
 * [Deep-Fake.AI](https://www.deep-fake.ai/)
 * [NSFW AI Tools List](https://nsfw.tools/collections/all)
+* [DailyFakes (NSFW Face Swap)](https://dailyfakes.com/)
 * [AI NSFW Tools](https://www.ainsfwtools.com/)
 * [Undress.vip](https://undress.vip/)
 * [Undress-ai.app](https://undress-ai.app/)
