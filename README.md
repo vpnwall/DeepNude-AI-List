@@ -1,6 +1,6 @@
 # DeepNude AI List
 <b>The best NSFW Nudity AI on the market: 
-* [See Free Trial ❤️](https://www.vancouvercoir.com/free-undress-ai) </b>
+* [See Free Trial (Hottest nudes ❤️](https://www.vancouvercoir.com/free-undress-ai) </b>
 [![Alt text](https://i0.wp.com/res.cloudinary.com/jerrick/image/upload/f_jpg,fl_progressive,q_auto,w_1024/662fd8ae8351c3001d08b942.png?w=1200&is-pending-load=1#038;ssl=1)](https://www.vancouvercoir.com/free-undress-ai)
 * <b>[N8ked (recommended best service)](https://www.n8ked.app/)</b>
 * [PornGen.art](https://porngen.art)
